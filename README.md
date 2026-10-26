@@ -224,4 +224,4 @@ Caster is available as a complete free version with all features and updates inc
 Experience the thrill of battle and adventure in Caster. **Download Caster free now and embark on your epic journey!**
 
 ---
-**Last updated:** 2026-10-25 23:42:31 UTC
+**Last updated:** 2026-10-26 02:44:46 UTC
